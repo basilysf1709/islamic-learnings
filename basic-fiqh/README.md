@@ -2,7 +2,7 @@
 
 ## Introduction:
 
-- YouTube Series : https://www.youtube.com/playlist?list=PLXguldgkbZPc3aQQWnTuIc8QZOTFxazAy by [[Joe Bradford]]
+- YouTube Series : https://www.youtube.com/playlist?list=PLXguldgkbZPc3aQQWnTuIc8QZOTFxazAy by Sh. Joe Bradford
 - A book of what is and not what if.
 - The study of Fiqh is like the study of the alphabet (You start from A and then go to Z)
 - Only one opinion of the Hanbali School (there might be other opinions)
